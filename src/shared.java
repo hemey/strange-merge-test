@@ -1,1 +1,1 @@
-Team alpha rules
+Team beta rules
